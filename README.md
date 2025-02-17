@@ -1,1 +1,1 @@
-ovyb[zkc# effective-octo-eureka
+covyb[zkc# effective-octo-eureka
